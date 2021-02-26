@@ -1,3 +1,3 @@
-Just a small person with a big dream.
+everything will be fine.
 
 ( •̀ ω •́ )✧
